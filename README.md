@@ -5,7 +5,7 @@
 
 - 📄 Know about my experiences [My experience is primarily in Microsoft Products and Services but I do have extensive experience with Apple (MacOS) and Linux
 
-<img alt="logo" width="100%" height= "100%" href="https://ibb.co/NNqkryf">
+<img alt="logo" width="10%" height= "10%" href="https://ibb.co/NNqkryf">
 
 
 <h3 align="left">Connect with me:</h3>
