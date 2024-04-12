@@ -3,7 +3,10 @@
 
 - 💼 Clients **General Motors 🚗, Allstate, NASA 👩🏻‍🚀,US DoD 🚁,Lucent/AT&T and Avaya 📞☎👇🏼**
 
-- 📄 Know about my experiences [My experience is primarily in Microsoft Products and Services but I do have extensive experience with Apple (MacOS) and Linux.https://ibb.co/NNqkryf https://ibb.co/NNqkryf https://ibb.co/pQDLNZd https://ibb.co/KwGZ7Ww https://ibb.co/J78N9KL https://ibb.co/Px118Xb https://ibb.co/q1pwjvJ https://ibb.co/MB2JHRw https://ibb.co/RNyvcxz https://ibb.co/2kLGw2f https://ibb.co/yBQkQvk https://ibb.co/yBMWhSK https://ibb.co/1QLWTzy https://ibb.co/Gn1gF2z https://ibb.co/MSmK8dt https://ibb.co/12G9Y1m https://ibb.co/QrcJLqB https://ibb.co/QrcJLqB https://ibb.co/NZ0PSxk https://ibb.co/wR261n1 https://ibb.co/dWsj85g https://ibb.co/S7k8Lvq](My experience is primarily in Microsoft Products and Services but I do have extensive experience with Apple (MacOS) and Linux.https://ibb.co/NNqkryf https://ibb.co/NNqkryf https://ibb.co/pQDLNZd https://ibb.co/KwGZ7Ww https://ibb.co/J78N9KL https://ibb.co/Px118Xb https://ibb.co/q1pwjvJ https://ibb.co/MB2JHRw https://ibb.co/RNyvcxz https://ibb.co/2kLGw2f https://ibb.co/yBQkQvk https://ibb.co/yBMWhSK https://ibb.co/1QLWTzy https://ibb.co/Gn1gF2z https://ibb.co/MSmK8dt https://ibb.co/12G9Y1m https://ibb.co/QrcJLqB https://ibb.co/QrcJLqB https://ibb.co/NZ0PSxk https://ibb.co/wR261n1 https://ibb.co/dWsj85g https://ibb.co/S7k8Lvq)
+- 📄 Know about my experiences [My experience is primarily in Microsoft Products and Services but I do have extensive experience with Apple (MacOS) and Linux
+
+<img alt="logo" width="100%" height= "100%" src="https://ibb.co/NNqkryf">
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
