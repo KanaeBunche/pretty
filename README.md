@@ -4,9 +4,7 @@
 - 💼 Clients **General Motors 🚗, Allstate, NASA 👩🏻‍🚀,US DoD 🚁,Lucent/AT&T and Avaya 📞☎👇🏼**
 
 <h3 align="left">Languages, Apps and Tools:</h3>
-<img alt="logo" width="100px" height= "100px" src="https://i.ibb.co/WzXd027/1.png!">
-<img alt="logo" width="100px" height= "100px" src="https://i.ibb.co/DCmNZtX/3.png!">
-<img alt="logo" width="100px" height= "100px"  src="https://i.ibb.co/cTQd3jY/4.png!">
+<img alt="logo" width="100px" height= "100px" src="https://i.ibb.co/WzXd027/1.png!"><img alt="logo" width="100px" height= "100px" src="https://i.ibb.co/DCmNZtX/3.png!"><img alt="logo" width="100px" height= "100px"  src="https://i.ibb.co/cTQd3jY/4.png!">
 
 
 
